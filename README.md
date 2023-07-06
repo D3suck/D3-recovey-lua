@@ -7,4 +7,4 @@ d3 디코 아이디 : apple__pay
 this is recovery lua for stand.
 he is selling this shit over 47$ 
 its for korean but you can use translater. plz share this shit 
-to your discord frieds.
+to your discord friends.
