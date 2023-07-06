@@ -10,3 +10,5 @@ this is recovery lua for stand.
 he is selling this shit over 47$ 
 its for korean but you can use translater. plz share this shit 
 to your discord friends.
+D3 discord id : apple__pay
+he is scammer.
